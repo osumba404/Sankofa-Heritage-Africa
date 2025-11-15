@@ -1,7 +1,16 @@
 
-## 🌍 **Roots & Routes Africa**
+## 🌍 **Sankofa – Heritage Africa**
 
 ### *Discover. Preserve. Experience.*
+
+---
+
+
+**Sankofa** is an Akan term from Ghana meaning *“go back and fetch what you have forgotten.”* It symbolizes **honoring the past, preserving knowledge, and reclaiming cultural roots**, which perfectly aligns with the platform’s goal of safeguarding Africa’s oral histories and traditions.
+
+**Heritage Africa** emphasizes the **scope and focus of the platform**, highlighting that it celebrates and preserves the continent’s **rich, diverse cultural legacy**.
+
+Together, the name conveys a **mission-driven, culturally authentic, and globally understandable identity**. It communicates respect for the past while inspiring **youth engagement, digital storytelling, and cultural exploration across Africa**.
 
 ---
 
